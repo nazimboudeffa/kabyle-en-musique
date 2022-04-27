@@ -13,9 +13,4 @@ Tabṛatt testenya | une lettre signée
 M-itt ldiɣ ɣṛiɣ-tt | Quand je l'ai lue
 Ur umineɣ-ara | Je ne l'ai pas cru
 
-
-
-
-
-
-
+Ce que l'on peut noter au delà des quelques mots comme une lettre *tabṛatt* comme je l'ai dis dans l'introduction c'est la phrase *Ur umineɣ-ara* ce qui veut donc dire *Je ne l'ai pas cru* et encore une fois on voit que *ara* veut dire *pas* et donc on apprend un nouveau verbe *umineɣ* qui veut dire *croire*
