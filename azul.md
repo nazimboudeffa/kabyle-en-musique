@@ -4,7 +4,7 @@ J'ai voulu commencer par cette chanson car elle m'est chère quand je suis arriv
 
 Donc si vous le savez pas encore *Azul* ça veut dire *Salut!* en tamazight une des langues officielle en Algérie
 
-Lien Youtube https://www.youtube.com/watch?v=2fLaKP42kvs
+Lien Youtube https://www.youtube.com/watch?v=KOvs_WiOeNA
 
 Voici les paroles avec la traduction et donc quelques mots à apprendre au fur et à mesure
 
