@@ -2,6 +2,8 @@
 
 J'ai voulu commencer par cette chanson car elle m'est chère quand je suis arrivé en France faire mes études en laissant ma famille en Algérie dans les années 90s, j'ai même dormi sur un banc à Paris et fait la fête avec des copains jusqu'à tout oublier
 
+Donc si vous le savez pas encore *Azul* ça veut dire *Salut!* en tamazight une des langues officielle en Algérie
+
 Lien Youtube https://www.youtube.com/watch?v=2fLaKP42kvs
 
 Voici les paroles avec la traduction et donc quelques mots à apprendre au fur et à mesure
