@@ -1,6 +1,6 @@
-# Azul Paris
+# Azul Paris - Ulahlou
 
-J'ai voulu commencer par cette chanson car elle m'est chère quand je suis arrivé en France faire mes études en laissant ma famille en Algérie dans les années 90s
+J'ai voulu commencer par cette chanson car elle m'est chère quand je suis arrivé en France faire mes études en laissant ma famille en Algérie dans les années 90s, j'ai même dormi sur un banc à Paris et fait la fête avec des copains jusqu'à tout oublier
 
 Lien Youtube https://www.youtube.com/watch?v=2fLaKP42kvs
 
