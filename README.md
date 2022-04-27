@@ -1,5 +1,7 @@
 # Le Kabyle en Musique
 
+CE TRAVAILE EST EN COURS SI VOUS TROUVEZ PAS GRAND CHOSE VOICI [LE DRAFT](https://docs.google.com/document/d/1jml4dsLnLwU-NYVTk1cw8hV43blN-sXYHisTorsBMHs/edit?usp=sharing)
+
 <img src="cover-kabyle-en-musique.png" width="300">
 
 Je vous recommande de lire ce livre dans cet ordre mais vous pouvez aussi sauter à une partie de votre choix
