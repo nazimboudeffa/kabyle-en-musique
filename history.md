@@ -3,7 +3,7 @@
 Vous allez me demander pourquoi j'écris un livre sur le Kabyle alors que dans mon autobio j'explique que je suis originaire d'El Oued ou Oued Souf, 
 hé bien c'est parce que je me suis mis en relation avec la page Facebook d'une tribue qui se trouve dans l'est Algérien et qui à parrement serait l'origine de mes ancêtres
 
-Quelle surprise alors que mon père disait toujours qu'on est originaire d'El Oued ou Oued Souf, il disait aussi que nous sommes originaire de la sqia el hamra, je vous dirais ce qu'il m'a toujours dis tout au long de ce livre
+Quelle surprise alors que mon père disait toujours qu'on est originaire d'El Oued ou Oued Souf, il disait aussi que nous sommes originaire de la sqia el hamra descendants du prophète, je vous dirais ce qu'il m'a toujours dis tout au long de ce livre
 
 voici la page https://www.facebook.com/Benitoufout21
 
