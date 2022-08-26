@@ -7,6 +7,8 @@ Quelle surprise alors que mon père disait toujours qu'on est originaire d'El Ou
 
 voici la page https://www.facebook.com/Benitoufout21
 
+![geo2](geo2.jpg)
+
 #POST 1
 
 🔵 اقليم كتامة و مناطق انتشارهم 
