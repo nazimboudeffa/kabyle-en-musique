@@ -2,7 +2,7 @@
 
 CE TRAVAILE EST EN COURS SI VOUS TROUVEZ PAS GRAND CHOSE VOICI [LE DRAFT](https://docs.google.com/document/d/1jml4dsLnLwU-NYVTk1cw8hV43blN-sXYHisTorsBMHs/edit?usp=sharing)
 
-<img src="cover-kabyle-en-musique.png" width="300">
+<img src="./le-kabyle-en-chanson/cover-kabyle-en-musique.png" width="300">
 
 # La Règle des 3P+1
 
