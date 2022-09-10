@@ -18,4 +18,4 @@ The original **Le Manuel du CSS** is licensed under a [Creative Commons Attribut
 
 * to Share—to copy, distribute and transmit the work
 * to Remix—to adapt the work
-* to make commercial use of the wor
+* to make commercial use of the work
